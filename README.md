@@ -1,4 +1,4 @@
-hello hai!!  , call me aster :].
+hello hai!!  , call me mikel :].(I change my name alot)
 -
 
 pronouns: he/they !
@@ -12,7 +12,7 @@ pronouns: he/they !
 
 'cudcomf! I really like cuds, feel free to c+h me ok?
 
-' my dni is basic bad things
+' my dni is basic dnis
 
 ' int list: tror and yaoi lelell & etc
 
@@ -21,3 +21,4 @@ pronouns: he/they !
 'I like cyan
 
 ' I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan I like cyan
+I like yello
